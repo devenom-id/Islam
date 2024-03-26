@@ -82,7 +82,7 @@ Al-Baqarah {2:35-37}
 Al-Hijr {15:30-42}
 
 ### Sobre el matrimonio en la tierra
-De acuerdo con la información encontrada en el tafseer (exégesis) de Ibn-Kathir, Allah ordenó a Adam que case a sus hijos con sus hijas. Se dice que cada embarazo de Hawaa dio a luz a un niño y una niña, y la ley en su tiempo era que un hijo de Adam no podía cazarse con su par, debía cazarse con su hermana de otro par. Así es como la humanidad fue incrementándose en número.
+De acuerdo con la información encontrada en el tafseer (exégesis) de Ibn-Kathir, Allah ordenó a Adam que case a sus hijos con sus hijas. Se dice que cada embarazo de Hawaa dio a luz a un niño y una niña, y la ley en su tiempo era que un hijo de Adam no podía casarse con su par, debía casarse con su hermana de otro par. Así es como la humanidad fue incrementándose en número.
 
 > ¡Oh, seres humanos! Tengan temor de su Señor, Quien los ha creado de un solo ser, del que creó a su cónyuge e hizo descender de ambos muchos hombres y mujeres. Tengan temor de Dios, en Cuyo nombre se reclaman sus derechos, y respeten los lazos familiares. Dios los observa.
 
