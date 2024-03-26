@@ -14,17 +14,21 @@ Ar-Rahman {55:15}
 
 ### Allah informa a los ángeles sobre una nueva criatura
 > Y [menciona, oh, Muhammad] cuando tu Señor le dijo a los ángeles: "He de establecer en la Tierra a quien la herede", dijeron: "¿Pondrás en ella a quien la corrompa [devastándola] y derrame sangre siendo que nosotros te glorificamos y santificamos?" Dijo: "Yo sé lo que ustedes ignoran".
+
 Al-Baqarah {2:30}
 
 ### Allah crea el cuerpo de Adam
 > ¿Acaso los que se niegan a creer no reparan en que los cielos y la Tierra formaban una masa homogénea y la disgregué, y que creé del agua a todo ser vivo? ¿Es que aún después de esto no van a creer?
+
 Al-Anbiyaa {21:30}
 
 > He creado al ser humano de arcilla, un barro maleable.
+
 Al-Hijr {15:26}
 
 > Creó al ser humano de arcilla como la cerámica
-Al-Rahman {55:14}
+
+Ar-Rahman {55:14}
 
 *Muslim (2612) narró que Abu Hurairah dijo: El mensajero de Allah (saw) dijo:*
 > "Cuando alguien pelea con su hermano, que evite la cara, porque Allah creó a Adam a su imagen." 
@@ -42,19 +46,23 @@ Abu Hurairah narró que el mensajero de Allah (saw) dijo:
 > 31. Y [Dios] enseñó a Adam los nombres de todas las cosas, luego se las mostró a los ángeles y dijo: "Díganme sus nombres, si es que dicen la verdad".
 > 32. Dijeron: "¡Glorificado seas! No tenemos más conocimiento que el que Tú nos has concedido, Tú todo lo conoces, todo lo sabes".
 > 33. Dijo: "¡Oh Adam! Infórmales sobre sus nombres". Y cuando les hubo informado sobre sus nombres, Dios dijo: "¿Acaso no les dije que conozco lo oculto de los cielos y de la Tierra, y sé lo que manifiestan y lo que ocultan?"
+
 Al-Baqarah {2:31-33}
 
 > Pero cuando dije a los ángeles: "¡Prostérnense ante Adam!" Todos se prosternaron excepto Iblees, que se negó y fue soberbio, y se convirtió en uno de los incrédulos.
+
 Al-Baqarah {2:34}
 
 ### Allah crea a Hawaah (Eva)
 > ¡Oh, seres humanos! Tengan temor de su Señor, Quien los ha creado de un solo ser, del que creó a su cónyuge e hizo descender de ambos muchos hombres y mujeres. Tengan temor de Dios, en Cuyo nombre se reclaman sus derechos, y respeten los lazos familiares. Dios los observa.
+
 An-Nisaa {4:1}
 
 ### Allah le prohibe el fruto a Adam
 > 35. Dije: "¡Oh, Adán! Habita con tu esposa el Paraíso, y coman de su abundancia cuanto deseen, pero no se acerquen a este árbol, porque si lo hacen se convertirán ambos en transgresores".
 > 36. Pero el demonio los hizo caer [en la desobediencia] apartándolos de la situación [agradable] en la que se encontraban. Y les dije: "¡Desciendan! Serán enemigos unos de otros; y en la Tierra encontrarán una morada y deleite temporal".
 > 37. Pero le fueron inspiradas a Adán unas palabras de su Señor [para que pudiera expresar su arrepentimiento] y Dios aceptó su arrepentimiento, porque Él es el Indulgente, el Misericordioso.
+
 Al-Baqarah {2:35-37}
 
 > 30. Todos los ángeles hicieron la reverencia,
@@ -70,12 +78,14 @@ Al-Baqarah {2:35-37}
 > 40. excepto a quienes de Tus siervos hayas protegido".
 > 41. Dijo [Dios]: "A quien siga Mi camino recto lo protegeré.
 > 42. No tendrás poder alguno sobre Mis siervos, salvo los que se extravíen siguiéndote".
+
 Al-Hijr {15:30-42}
 
 ### Sobre el matrimonio en la tierra
 De acuerdo con la información encontrada en el tafseer (exégesis) de Ibn-Kathir, Allah ordenó a Adam que case a sus hijos con sus hijas. Se dice que cada embarazo de Hawaa dio a luz a un niño y una niña, y la ley en su tiempo era que un hijo de Adam no podía cazarse con su par, debía cazarse con su hermana de otro par. Así es como la humanidad fue incrementándose en número.
 
 > ¡Oh, seres humanos! Tengan temor de su Señor, Quien los ha creado de un solo ser, del que creó a su cónyuge e hizo descender de ambos muchos hombres y mujeres. Tengan temor de Dios, en Cuyo nombre se reclaman sus derechos, y respeten los lazos familiares. Dios los observa.
+
 An-Nisaa {4:1}
 
 ### Habeel y Qabeel
@@ -86,4 +96,5 @@ Habeel (Abel) y Qabeel (Caín) fueron dos de los varios hijos directos de Adam, 
 > 29. Prefiero que seas tú quien cargue con mis pecados y los tuyos, [y si me matas] serás de los moradores del Fuego, porque ese es el castigo para los que cometen esa injusticia".
 > 30. Pero su ego lo llevó [a Qabeel] a matar a su hermano, por lo que se arruinó a sí mismo.
 > 31. Entonces Dios envió un cuervo para que escarbase la tierra y le mostrara cómo enterrar el cadáver de su hermano. Dijo [Qabeel]: "¡Ay de mí! ¿Acaso no soy capaz de hacer como este cuervo y enterrar el cadáver de mi hermano?" Y sintió un profundo arrepentimiento.
+
 Al-Maa'ida {5:27-31}
