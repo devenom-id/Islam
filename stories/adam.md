@@ -43,9 +43,9 @@ Abu Hurairah (ra) reportó que el profeta (saw) dijo:
 Abu Hurairah narró que el mensajero de Allah (saw) dijo:
 > "Cuando Allah creó a Adam, insufló el alma en él, luego él (Adam) estornudó y dijo: 'Alhamdulillah (Alabado sea Allah)'. Así que alabó a Allah con Su permiso. Entonces su Señor le dijo: 'Que Allah tenga misericordia de ti, oh Adam. Ve a esos ángeles, a esa reunión de ellos sentados, y di: 'As-Salamu alaikum'. Ellos dijeron 'Wa Alaikas-Salamu Wa Rahmatullah'. Luego regresó a su Señor, Él dijo: 'Este es tu saludo y el saludo de tus hijos entre sí.' Entonces Allah le dijo - mientras Sus Dos Manos estaban cerradas - 'Elige cuál de las dos deseas.' Él dijo: 'Elijo la derecha, mi Señor, y ambas Manos de mi Señor son derechas, benditas'. Luego la extendió, y ahí estaba Adam y su descendencia en ella.' Así que él dijo: '¿Qué son estos, oh mi Señor?' Él dijo: 'Estos son tus descendientes.' Cada uno de ellos tenía su edad escrita entre sus ojos. Pero entre ellos había un hombre que era el más iluminado - o entre los más iluminados de ellos. Él dijo: '¡Oh Señor! ¿Quién es este?' Él dijo: 'Este es tu hijo Dawud, le escribí cuarenta años.' Él dijo: '¡Oh Señor! Añade años a su edad.' Él dijo: 'Eso es lo que he escrito para él.' Él dijo: '¡Oh Señor! Dale sesenta de mis años.' Él dijo: 'Así será.' ”Él dijo:“ Entonces, residió en el Paraíso tanto tiempo como Allah quiso, luego fue expulsado de él, así que Adam estaba contando para sí mismo. ”Él dijo:“ Entonces, el Ángel de la Muerte vino a él, y Adam le dijo: 'Eres apresurado, mil años fueron escritos para mí.' Él dijo: '¡Por supuesto! Pero le diste sesenta años a tu hijo Dawud.' Entonces lo rechazó, y su descendencia lo rechazó, y olvidó, y su descendencia olvidó. ”Él dijo:“ Desde entonces, desde ese día, lo que está escrito y presenciado ha sido decretado."
 
-> 31. Y [Dios] enseñó a Adam los nombres de todas las cosas, luego se las mostró a los ángeles y dijo: "Díganme sus nombres, si es que dicen la verdad".
-> 32. Dijeron: "¡Glorificado seas! No tenemos más conocimiento que el que Tú nos has concedido, Tú todo lo conoces, todo lo sabes".
-> 33. Dijo: "¡Oh Adam! Infórmales sobre sus nombres". Y cuando les hubo informado sobre sus nombres, Dios dijo: "¿Acaso no les dije que conozco lo oculto de los cielos y de la Tierra, y sé lo que manifiestan y lo que ocultan?"
+> `31.` Y [Dios] enseñó a Adam los nombres de todas las cosas, luego se las mostró a los ángeles y dijo: "Díganme sus nombres, si es que dicen la verdad".
+> `32.` Dijeron: "¡Glorificado seas! No tenemos más conocimiento que el que Tú nos has concedido, Tú todo lo conoces, todo lo sabes".
+> `33.` Dijo: "¡Oh Adam! Infórmales sobre sus nombres". Y cuando les hubo informado sobre sus nombres, Dios dijo: "¿Acaso no les dije que conozco lo oculto de los cielos y de la Tierra, y sé lo que manifiestan y lo que ocultan?"
 
 Al-Baqarah {2:31-33}
 
@@ -59,8 +59,8 @@ Al-Baqarah {2:34}
 An-Nisaa {4:1}
 
 ### Allah le prohibe el fruto a Adam
-> 35 Dije: "¡Oh, Adán! Habita con tu esposa el Paraíso, y coman de su abundancia cuanto deseen, pero no se acerquen a este árbol, porque si lo hacen se convertirán ambos en transgresores".
-> 36 Pero el demonio los hizo caer [en la desobediencia] apartándolos de la situación [agradable] en la que se encontraban. Y les dije: "¡Desciendan! Serán enemigos unos de otros; y en la Tierra encontrarán una morada y deleite temporal".
+> `35.` Dije: "¡Oh, Adán! Habita con tu esposa el Paraíso, y coman de su abundancia cuanto deseen, pero no se acerquen a este árbol, porque si lo hacen se convertirán ambos en transgresores".
+> `36.` Pero el demonio los hizo caer [en la desobediencia] apartándolos de la situación [agradable] en la que se encontraban. Y les dije: "¡Desciendan! Serán enemigos unos de otros; y en la Tierra encontrarán una morada y deleite temporal".
 > 37 Pero le fueron inspiradas a Adán unas palabras de su Señor [para que pudiera expresar su arrepentimiento] y Dios aceptó su arrepentimiento, porque Él es el Indulgente, el Misericordioso.
 
 Al-Baqarah {2:35-37}
