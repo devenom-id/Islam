@@ -59,25 +59,25 @@ Al-Baqarah {2:34}
 An-Nisaa {4:1}
 
 ### Allah le prohibe el fruto a Adam
-> 35. Dije: "¡Oh, Adán! Habita con tu esposa el Paraíso, y coman de su abundancia cuanto deseen, pero no se acerquen a este árbol, porque si lo hacen se convertirán ambos en transgresores".
-> 36. Pero el demonio los hizo caer [en la desobediencia] apartándolos de la situación [agradable] en la que se encontraban. Y les dije: "¡Desciendan! Serán enemigos unos de otros; y en la Tierra encontrarán una morada y deleite temporal".
-> 37. Pero le fueron inspiradas a Adán unas palabras de su Señor [para que pudiera expresar su arrepentimiento] y Dios aceptó su arrepentimiento, porque Él es el Indulgente, el Misericordioso.
+> 35 Dije: "¡Oh, Adán! Habita con tu esposa el Paraíso, y coman de su abundancia cuanto deseen, pero no se acerquen a este árbol, porque si lo hacen se convertirán ambos en transgresores".
+> 36 Pero el demonio los hizo caer [en la desobediencia] apartándolos de la situación [agradable] en la que se encontraban. Y les dije: "¡Desciendan! Serán enemigos unos de otros; y en la Tierra encontrarán una morada y deleite temporal".
+> 37 Pero le fueron inspiradas a Adán unas palabras de su Señor [para que pudiera expresar su arrepentimiento] y Dios aceptó su arrepentimiento, porque Él es el Indulgente, el Misericordioso.
 
 Al-Baqarah {2:35-37}
 
-> 30. Todos los ángeles hicieron la reverencia,
-> 31. excepto Iblís, que se negó a ser de quienes hicieron la reverencia.
-> 32. Dijo [Dios]: "¡Oh, Iblees! ¿Por qué no te cuentas entre quienes hicieron la reverencia?"
-> 33. Dijo: "No he de hacerla ante un ser humano [que es inferior a mí], al que has creado de arcilla, de barro maleable".
-> 34. Dijo [Dios]: "Sal de aquí, pues te maldigo.
-> 35. Serás maldito hasta el Día del Juicio".
-> 36. Dijo: "¡Oh, Señor mío! Tolérame hasta el Día de la Resurrección".
-> 37. Dijo: "Te concedo la prórroga que me pides,
-> 38. hasta el día cuyo término está definido".
-> 39. Dijo: "¡Oh, Señor mío! Por haber dejado que me extravíe, los seduciré y descarriaré a todos,
-> 40. excepto a quienes de Tus siervos hayas protegido".
-> 41. Dijo [Dios]: "A quien siga Mi camino recto lo protegeré.
-> 42. No tendrás poder alguno sobre Mis siervos, salvo los que se extravíen siguiéndote".
+> 30 Todos los ángeles hicieron la reverencia,
+> 31 excepto Iblís, que se negó a ser de quienes hicieron la reverencia.
+> 32 Dijo [Dios]: "¡Oh, Iblees! ¿Por qué no te cuentas entre quienes hicieron la reverencia?"
+> 33 Dijo: "No he de hacerla ante un ser humano [que es inferior a mí], al que has creado de arcilla, de barro maleable".
+> 34 Dijo [Dios]: "Sal de aquí, pues te maldigo.
+> 35 Serás maldito hasta el Día del Juicio".
+> 36 Dijo: "¡Oh, Señor mío! Tolérame hasta el Día de la Resurrección".
+> 37 Dijo: "Te concedo la prórroga que me pides,
+> 38 hasta el día cuyo término está definido".
+> 39 Dijo: "¡Oh, Señor mío! Por haber dejado que me extravíe, los seduciré y descarriaré a todos,
+> 40 excepto a quienes de Tus siervos hayas protegido".
+> 41 Dijo [Dios]: "A quien siga Mi camino recto lo protegeré.
+> 42 No tendrás poder alguno sobre Mis siervos, salvo los que se extravíen siguiéndote".
 
 Al-Hijr {15:30-42}
 
@@ -91,10 +91,10 @@ An-Nisaa {4:1}
 ### Habeel y Qabeel
 Habeel (Abel) y Qabeel (Caín) fueron dos de los varios hijos directos de Adam, la paz y las bendiciones sean con él.
 
-> 27. [Oh, Muhammad:] Cuéntales la auténtica historia de los hijos de Adam, cuando presentaron una ofrenda y le fue aceptada a uno y rechazada al otro. Dijo [Qabil]: "Te mataré". Dijo [Habeel]: "Dios solo acepta las obras de los que obran con fe sincera.
-> 28. Aunque levantaras tu mano para matarme, yo no levantaría la mía para matarte, porque yo tengo temor de Dios, Señor del Universo.
-> 29. Prefiero que seas tú quien cargue con mis pecados y los tuyos, [y si me matas] serás de los moradores del Fuego, porque ese es el castigo para los que cometen esa injusticia".
-> 30. Pero su ego lo llevó [a Qabeel] a matar a su hermano, por lo que se arruinó a sí mismo.
-> 31. Entonces Dios envió un cuervo para que escarbase la tierra y le mostrara cómo enterrar el cadáver de su hermano. Dijo [Qabeel]: "¡Ay de mí! ¿Acaso no soy capaz de hacer como este cuervo y enterrar el cadáver de mi hermano?" Y sintió un profundo arrepentimiento.
+> 27 [Oh, Muhammad:] Cuéntales la auténtica historia de los hijos de Adam, cuando presentaron una ofrenda y le fue aceptada a uno y rechazada al otro. Dijo [Qabil]: "Te mataré". Dijo [Habeel]: "Dios solo acepta las obras de los que obran con fe sincera.
+> 28 Aunque levantaras tu mano para matarme, yo no levantaría la mía para matarte, porque yo tengo temor de Dios, Señor del Universo.
+> 29 Prefiero que seas tú quien cargue con mis pecados y los tuyos, [y si me matas] serás de los moradores del Fuego, porque ese es el castigo para los que cometen esa injusticia".
+> 30 Pero su ego lo llevó [a Qabeel] a matar a su hermano, por lo que se arruinó a sí mismo.
+> 31 Entonces Dios envió un cuervo para que escarbase la tierra y le mostrara cómo enterrar el cadáver de su hermano. Dijo [Qabeel]: "¡Ay de mí! ¿Acaso no soy capaz de hacer como este cuervo y enterrar el cadáver de mi hermano?" Y sintió un profundo arrepentimiento.
 
 Al-Maa'ida {5:27-31}
