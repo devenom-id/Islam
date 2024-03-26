@@ -1,9 +1,11 @@
 ### La tierra antes de Adam
 Antes que Adam existían los angeles, como el angel Jibreel (Gabriel), y los genios (yinn), entre los que se cuenta Iblees (el diablo).
 > Y al yinn lo había creado ya antes de fuego.
+
 Al-Hijr {15:27}
 
 > y creó a los yinnes de fuego puro.
+
 Ar-Rahman {55:15}
 
 ### Allah informa a los ángeles sobre una nueva criatura
