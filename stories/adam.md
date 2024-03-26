@@ -1,3 +1,7 @@
+## Historia de Adam (as)
+
+Adam fue el primer ser humano, el padre de los seres humanos. No tiene padre ni madre, Allah lo creó con sus propias manos y lo puso como un representante y autoridad en la tierra, y de él surgimos todos.
+
 ### La tierra antes de Adam
 Antes que Adam existían los angeles, como el angel Jibreel (Gabriel), y los genios (yinn), entre los que se cuenta Iblees (el diablo).
 > Y al yinn lo había creado ya antes de fuego.
