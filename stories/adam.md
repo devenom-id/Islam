@@ -9,6 +9,7 @@ Ar-Rahman {55:15}
 ### Allah informa a los ángeles sobre una nueva criatura
 > Y [menciona, oh, Muhammad] cuando tu Señor le dijo a los ángeles: "He de establecer en la Tierra a quien la herede", dijeron: "¿Pondrás en ella a quien la corrompa [devastándola] y derrame sangre siendo que nosotros te glorificamos y santificamos?" Dijo: "Yo sé lo que ustedes ignoran".
 Al-Baqarah {2:30}
+
 ### Allah crea el cuerpo de Adam
 > ¿Acaso los que se niegan a creer no reparan en que los cielos y la Tierra formaban una masa homogénea y la disgregué, y que creé del agua a todo ser vivo? ¿Es que aún después de esto no van a creer?
 Al-Anbiyaa {21:30}
@@ -39,9 +40,11 @@ Al-Baqarah {2:31-33}
 
 > Pero cuando dije a los ángeles: "¡Prostérnense ante Adam!" Todos se prosternaron excepto Iblees, que se negó y fue soberbio, y se convirtió en uno de los incrédulos.
 Al-Baqarah {2:34}
-### Allah crea a Hawaah
+
+### Allah crea a Hawaah (Eva)
 > ¡Oh, seres humanos! Tengan temor de su Señor, Quien los ha creado de un solo ser, del que creó a su cónyuge e hizo descender de ambos muchos hombres y mujeres. Tengan temor de Dios, en Cuyo nombre se reclaman sus derechos, y respeten los lazos familiares. Dios los observa.
 An-Nisaa {4:1}
+
 ### Allah le prohibe el fruto a Adam
 > 35. Dije: "¡Oh, Adán! Habita con tu esposa el Paraíso, y coman de su abundancia cuanto deseen, pero no se acerquen a este árbol, porque si lo hacen se convertirán ambos en transgresores".
 > 36. Pero el demonio los hizo caer [en la desobediencia] apartándolos de la situación [agradable] en la que se encontraban. Y les dije: "¡Desciendan! Serán enemigos unos de otros; y en la Tierra encontrarán una morada y deleite temporal".
@@ -62,13 +65,15 @@ Al-Baqarah {2:35-37}
 > 41. Dijo [Dios]: "A quien siga Mi camino recto lo protegeré.
 > 42. No tendrás poder alguno sobre Mis siervos, salvo los que se extravíen siguiéndote".
 Al-Hijr {15:30-42}
+
 ### Sobre el matrimonio en la tierra
-De acuerdo con la información encontrada en el tafseer de Ibn-Kathir, Allah ordenó a Adam que case a sus hijos con sus hijas. Se dice que cada embarazo de Hawaa dio a luz a un niño y una niña, y la ley en su tiempo era que un hijo de Adam no podía cazarse con su par, debía cazarse con su hermana de otro par. Así es como la humanidad fue incrementándose en número.
+De acuerdo con la información encontrada en el tafseer (exégesis) de Ibn-Kathir, Allah ordenó a Adam que case a sus hijos con sus hijas. Se dice que cada embarazo de Hawaa dio a luz a un niño y una niña, y la ley en su tiempo era que un hijo de Adam no podía cazarse con su par, debía cazarse con su hermana de otro par. Así es como la humanidad fue incrementándose en número.
 
 > ¡Oh, seres humanos! Tengan temor de su Señor, Quien los ha creado de un solo ser, del que creó a su cónyuge e hizo descender de ambos muchos hombres y mujeres. Tengan temor de Dios, en Cuyo nombre se reclaman sus derechos, y respeten los lazos familiares. Dios los observa.
 An-Nisaa {4:1}
 
 ### Habeel y Qabeel
+Habeel (Abel) y Qabeel (Caín) fueron dos de los varios hijos directos de Adam, la paz y las bendiciones sean con él.
 
 > 27. [Oh, Muhammad:] Cuéntales la auténtica historia de los hijos de Adam, cuando presentaron una ofrenda y le fue aceptada a uno y rechazada al otro. Dijo [Qabil]: "Te mataré". Dijo [Habeel]: "Dios solo acepta las obras de los que obran con fe sincera.
 > 28. Aunque levantaras tu mano para matarme, yo no levantaría la mía para matarte, porque yo tengo temor de Dios, Señor del Universo.
