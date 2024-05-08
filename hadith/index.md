@@ -1,5 +1,5 @@
 ## Patience
-[[Difficulty certain to be followed by relief]]
+[Difficulty certain to be followed by relief](./Difficulty certain to be followed by relief.md)
 [[Patience is best provision from Allah]]
 [[The real patience]]
 [[Reward for patience at first strike is Paradise]]
