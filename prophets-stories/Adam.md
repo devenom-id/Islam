@@ -1,4 +1,3 @@
-#islam #stories-of-prophets
 ## Historia de Adam (as)
 
 Adam fue el primer ser humano, el padre de los seres humanos. No tiene padre ni madre, Allah lo creó con sus propias manos y lo puso como un representante y autoridad en la tierra, y de él surgimos todos.
