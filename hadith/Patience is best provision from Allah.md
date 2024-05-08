@@ -1,4 +1,3 @@
-#islam #hadith
 Abu Huraira reported: The Messenger of Allah, peace and blessings be upon him, said,
 
 >“A servant is not provided with anything better and vaster than patience.”
