@@ -1,5 +1,6 @@
 >O believers! Fasting is prescribed for you—as it was for those before you—so perhaps you will become mindful ˹of Allah˺.
 >˹Fast a˺ prescribed number of days. But whoever of you is ill or on a journey, then ˹let them fast˺ an equal number of days ˹after Ramaḍân˺. For those who can only fast with extreme difficulty, compensation can be made by feeding a needy person ˹for every day not fasted˺. But whoever volunteers to give more, it is better for them. And to fast is better for you, if only you knew.
+
 Surah Al-Baqarah {2:183-184}
 
 Narrated Abu Huraira: Allah's Messenger (ﷺ) said:
@@ -11,9 +12,11 @@ Source: Sahih al-Bukhari 1904
 ## Ramadan
 
 >Ramaḍân is the month in which the Quran was revealed as a guide for humanity with clear proofs of guidance and the decisive authority. So whoever is present this month, let them fast. But whoever is ill or on a journey, then ˹let them fast˺ an equal number of days ˹after Ramaḍân˺. Allah intends ease for you, not hardship, so that you may complete the prescribed period and proclaim the greatness of Allah for guiding you, and perhaps you will be grateful.
+
 Surah Al-Baqarah {2:185}
 
 >It has been made permissible for you to be intimate with your wives during the nights preceding the fast. Your spouses are a garment1 for you as you are for them. Allah knows that you were deceiving yourselves.2 So He has accepted your repentance and pardoned you. So now you may be intimate with them and seek what Allah has prescribed for you.3 ˹You may˺ eat and drink until you see the light of dawn breaking the darkness of night, then complete the fast until nightfall. Do not be intimate with your spouses while you are meditating in the mosques. These are the limits set by Allah, so do not exceed them. This is how Allah makes His revelations clear to people, so they may become mindful ˹of Him˺.
+
 Surah Al-Baqarah {2:187}
 
 Narrated Abu Huraira: Allah's Messenger (ﷺ) said,
