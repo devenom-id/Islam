@@ -19,11 +19,11 @@
 - [Moderación con la comida](./Moderación con la comida.md)
 - [Rules of eating](./Rules of eating.md)
 - [Eat with right hand](./Eat with right hand.md)
-- [Prophet Muhammad (saw)'s use of left and right hands](./Prophet Muhammad \(saw\)'s use of left and right hands.md)
+- [Prophet Muhammad (saw)'s use of left and right hands](./Prophet Muhammad's use of left and right hands.md)
 - [Prohibition on eating the meat of donkey](./Prohibition on eating the meat of donkey.md)
 ## Cleaning oneself
 - [Washing the heels when performing wudu](./Washing the heels when performing wudu.md)
-- [Prophet Muhammad (saw)'s use of left and right hands](./Prophet Muhammad \(saw\)'s use of left and right hands.md)
+- [Prophet Muhammad (saw)'s use of left and right hands](./Prophet Muhammad's use of left and right hands.md)
 - [Ghusl after janaba according to Aisha](./Ghusl after janaba according to Aisha.md)
 - [Ghusl after Janaba according to Maimuna](./Ghusl after Janaba according to Maimuna.md)
 - [Correct way of making Wudu](./Correct way of making Wudu.md)
@@ -41,7 +41,7 @@
 - [The Angel holds the pen for six hours after a sin](./The Angel holds the pen for six hours after a sin.md)
 - [If you were not to commit sin](./If you were not to commit sin.md)
 ## Du'aa
-- [Du'aa de Yunus (as)](./Du'aa de Yunus \(as\).md)
+- [Du'aa de Yunus (as)](./Du'aa de Yunus.md)
 - [Sayyidul Istighfar](./Sayyidul Istighfar.md)
 - [Líbrame de los males dentro de mi](./Líbrame de los males dentro de mi.md)
 - [Du'aa after a meeting](./Du'aa after a meeting.md)
