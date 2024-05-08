@@ -1,14 +1,18 @@
 >Establish prayer, pay alms-tax, and bow down with those who bow down.
+
 Surah Al-Baqarah {2:43}
 
 >And seek help through patience and prayer. Indeed, it is a burden except for the humble—
+
 Surah Al-Baqarah {2:45}
 
->This is the Book! There is no doubt about it—a guide for those mindful ˹of Allah˺,
->who believe in the unseen, establish prayer, and donate from what We have provided for them,
+>This is the Book! There is no doubt about it—a guide for those mindful ˹of Allah˺,<br>
+who believe in the unseen, establish prayer, and donate from what We have provided for them,
+
 Surah Al-Baqarah {2:2-3}
 
 >O believers! When you rise up for prayer, wash your faces and your hands up to the elbows, wipe your heads, and wash your feet to the ankles. And if you are in a state of ˹full˺ impurity, then take a full bath. But if you are ill, on a journey, or have relieved yourselves, or have been intimate with your wives and cannot find water, then purify yourselves with clean earth by wiping your faces and hands. It is not Allah’s Will to burden you, but to purify you and complete His favour upon you, so perhaps you will be grateful.
+
 Surah Al-Ma'idah {5:6}
 
 Narrated Abu Dhar: Allah's Messenger (ﷺ) said,
