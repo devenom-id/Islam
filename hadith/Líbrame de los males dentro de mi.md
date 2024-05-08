@@ -4,5 +4,5 @@
 
 ‏اللهم ألهمني رشدي، وأعذني من شر نفسي
 
-Narrado por 'Imran bin Husain.
+Narrado por 'Imran bin Husain.<br>
 Fuente: Riyad as-Salihin 1487.
