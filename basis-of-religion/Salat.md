@@ -16,19 +16,17 @@ Narrated Abu Dhar: Allah's Messenger (ﷺ) said,
 
 Source: Sahih al-Bukhari 349
 
-Narrated Aisha:
-
-the mother of believers: Allah enjoined the prayer when He enjoined it, it was two rak'aat only (in every prayer) both when in residence or on journey. Then the prayers offered on journey remained the same, but (the rak'aat of) the prayers for non-travelers were increased.
+Narrated Aisha the mother of believers:
+>Allah enjoined the prayer when He enjoined it, it was two rak'aat only (in every prayer) both when in residence or on journey. Then the prayers offered on journey remained the same, but (the rak'aat of) the prayers for non-travelers were increased.
 
 Source: Sahih al-Bukhari 350
 
-Narrated Ibn 'Umar:
-Allah's Apostle said,
+Narrated Ibn 'Umar: Allah's Apostle said,
 >"None of you should try to pray at sunrise or sunset."
 
 Source: Sahih al-Bukhari 559
 
-Narrated Abu Huraira:
-Allah's Apostle said, "Whoever could get one Rak'a of a prayer, (in its proper time) he has got the prayer."
+Narrated Abu Huraira Allah's Apostle said,
+>"Whoever could get one Rak'a of a prayer, (in its proper time) he has got the prayer."
 
 Source: Sahih al-Bukhari 554
