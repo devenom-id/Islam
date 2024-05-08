@@ -1,5 +1,3 @@
-#islam #base-of-religion 
-
 >O believers! Fasting is prescribed for you—as it was for those before you—so perhaps you will become mindful ˹of Allah˺.
 >˹Fast a˺ prescribed number of days. But whoever of you is ill or on a journey, then ˹let them fast˺ an equal number of days ˹after Ramaḍân˺. For those who can only fast with extreme difficulty, compensation can be made by feeding a needy person ˹for every day not fasted˺. But whoever volunteers to give more, it is better for them. And to fast is better for you, if only you knew.
 Surah Al-Baqarah {2:183-184}

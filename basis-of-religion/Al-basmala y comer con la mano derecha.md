@@ -1,5 +1,3 @@
-#islam #base-of-religion 
-
 'Umar bin Abu Salamah (May Allah be pleased with him) reported:
 Messenger of Allah (ﷺ), said to me,
 

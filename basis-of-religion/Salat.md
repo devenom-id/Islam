@@ -1,4 +1,3 @@
-#islam #base-of-religion
 >Establish prayer, pay alms-tax, and bow down with those who bow down.
 Surah Al-Baqarah {2:43}
 

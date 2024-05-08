@@ -1,4 +1,3 @@
-#islam #base-of-religion 
 
 >When My servants ask you ˹O Prophet˺ about Me: I am truly near. I respond to one’s prayer when they call upon Me. So let them respond ˹with obedience˺ to Me and believe in Me, perhaps they will be guided ˹to the Right Way˺.
 Surah Al-Baqarah {2:186}
