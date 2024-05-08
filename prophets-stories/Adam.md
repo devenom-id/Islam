@@ -1,3 +1,4 @@
+#islam #stories-of-prophets
 ## Historia de Adam (as)
 
 Adam fue el primer ser humano, el padre de los seres humanos. No tiene padre ni madre, Allah lo creó con sus propias manos y lo puso como un representante y autoridad en la tierra, y de él surgimos todos.
@@ -98,3 +99,7 @@ Habeel (Abel) y Qabeel (Caín) fueron dos de los varios hijos directos de Adam, 
 > `31.` Entonces Dios envió un cuervo para que escarbase la tierra y le mostrara cómo enterrar el cadáver de su hermano. Dijo [Qabeel]: "¡Ay de mí! ¿Acaso no soy capaz de hacer como este cuervo y enterrar el cadáver de mi hermano?" Y sintió un profundo arrepentimiento.
 
 Al-Maa'ida {5:27-31}
+
+### La discusión entre Adam y Musa
+Abu Huraira (ra) reportó que el Profeta (ﷺ) dijo:
+> "Adam y Musa (Moisés) discutieron entre ellos. Musa dijo a Adam: '¡Oh Adam! Tú eres nuestro padre que nos decepcionó y nos expulsó del Paraíso'. Entonces Adam le dijo: '¡Oh Musa! Allah te favoreció con Su habla (habló contigo directamente) y Él escribió (la Torá) para ti con Su propia mano. ¿Me culpas por una acción que Allah había escrito en mi destino cuarenta años antes de mi creación?' Así que Adam refutó a Musa, Adam refutó a Musa", agregó el Profeta (ﷺ), repitiendo la declaración tres veces.
