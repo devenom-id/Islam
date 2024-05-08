@@ -22,7 +22,7 @@ An-Nu'man bin Bashir (May Allah be pleased with them) reported: The Prophet (ﷺ
 
 Source: Riyad as-Salihin 1465
 
-Abu Hurairah (May Allah be pleased with him) reported: The Messenger of Allah (ﷺ),said,
+Abu Hurairah (May Allah be pleased with him) reported: The Messenger of Allah (ﷺ)said,
 
 >"The supplication of every one of you will be granted if he does not get impatient and say (for example): 'I supplicated my Rabb but my prayer has not been granted'." [Al-Bukhari and Muslim].
 
