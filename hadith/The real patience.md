@@ -1,3 +1,4 @@
+#islam #hadith 
 Narrated Anas: The Prophet (ﷺ) said, 
 
 >“The real patience is at the first stroke of a calamity.”

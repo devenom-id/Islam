@@ -1,3 +1,4 @@
+#islam #hadith 
 Narrated 'Umar bin Al-Khattab that the messenger of Allah (saw) said,
 
 >"The reward of deeds depends upon the intentions and every person
