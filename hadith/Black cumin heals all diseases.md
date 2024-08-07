@@ -1,4 +1,3 @@
-#islam #hadith 
 Narrated Abu Huraira: I heard Allah's Apostle saying,
 
 > "There is healing in black cumin for all diseases except death."

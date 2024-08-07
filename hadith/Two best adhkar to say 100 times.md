@@ -1,4 +1,3 @@
-#islam #hadith 
 Abu Hurairah (May Allah be pleased with him) reported:
 The Messenger of Allah (ﷺ) said,
 

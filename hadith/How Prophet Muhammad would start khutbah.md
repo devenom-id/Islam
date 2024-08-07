@@ -1,4 +1,3 @@
-#islam #hadith 
 Jabir ibn Abdullah reported: The Messenger of Allah, peace and blessings be upon him, would praise Allah in his sermon, as He deserves to be praised, and then he would say,
 > “Whomever Allah guides, no one can lead him astray. Whomever Allah sends astray, no one can guide him. The truest word is the Book of Allah, and the best guidance is the guidance of Muhammad. The evilest matters in religion are those that are newly invented, for every newly invented matter is an innovation, every innovation is misguidance, and every misguidance is in the Hellfire.”
 

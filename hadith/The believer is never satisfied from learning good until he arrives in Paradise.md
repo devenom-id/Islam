@@ -1,4 +1,3 @@
-#islam #hadith 
 Abu Sa’id al-Khudri reported: The Messenger of Allah, peace and blessings be upon him, said:
 
 لَنْ يَشْبَعَ الْمُؤْمِنُ مِنْ خَيْرٍ يَسْمَعُهُ حَتَّى يَكُونَ مُنْتَهَاهُ الْجَنَّةُ

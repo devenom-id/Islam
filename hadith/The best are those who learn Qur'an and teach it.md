@@ -1,4 +1,3 @@
-#islam #hadith 
 Uthman bin Affan reported: The Prophet, peace and blessings be upon him, said:
 
 خَيْرُكُمْ مَنْ تَعَلَّمَ الْقُرْآنَ وَعَلَّمَهُ

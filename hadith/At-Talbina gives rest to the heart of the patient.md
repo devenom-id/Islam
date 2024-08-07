@@ -1,4 +1,3 @@
-#islam #hadith 
 Narrated 'Ursa:
 
 Aisha used to recommend At-Talbina for the sick and for such a person as grieved over a dead person. She used to say, "I heard Allah's Apostle saying,

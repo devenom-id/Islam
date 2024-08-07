@@ -1,4 +1,3 @@
-#islam #hadith 
 ‘Ubadah ibn al-Samit reported: The Messenger of Allah, peace and blessings be upon him, said:
 > “Whoever testifies that there is no God but Allah alone without any partners, that Muhammad is His servant and His messenger, that Jesus is the servant of Allah and His messenger, His word which He bestowed upon Mary and a spirit from Him, and that Paradise is the truth and Hellfire is the truth, then Allah will admit him into Paradise by whatever good deeds he had done.”
 

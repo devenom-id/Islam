@@ -1,4 +1,3 @@
-#islam #hadith 
 Abdullah ibn Amr reported:
 
 > The Messenger of Allah, peace and blessings be upon him, said, “Bind the knowledge.” I said, “How to bind it?” The Prophet said, “Books.”

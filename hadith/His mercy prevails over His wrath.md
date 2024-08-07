@@ -1,4 +1,3 @@
-#islam #hadith 
 Abu Huraira reported: The Messenger of Allah, peace and blessings be upon him, said:
 
 >“When Allah completed the creation, He wrote in His book with Him upon the Throne: Verily, My mercy prevails over My wrath.”

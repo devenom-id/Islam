@@ -1,4 +1,3 @@
-#islam #hadith 
 Sahl ibn Sa’d reported: The Prophet, peace and blessings be upon him, said:
 
 وَاللَّهِ لَأَنْ يَهْدِيَ اللَّهُ بِكَ رَجُلًا خَيْرٌ لَكَ مِنْ أَنْ يَكُونَ لَكَ حُمْرُ النَّعَمِ

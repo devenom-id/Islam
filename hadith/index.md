@@ -22,7 +22,7 @@
 ## Rites
 - [How Prophet Muhammad (saw) would start khutbah](How Prophet Muhammad would start khutbah.md)
 ## Food and eating
-- [Moderación con la comida](Moderación con la comida.md)
+- [Moderación con la comida](Moderacion con la comida.md)
 - [Rules of eating](Rules of eating.md)
 - [Eat with right hand](Eat with right hand.md)
 - [Prophet Muhammad (saw)'s use of left and right hands](Prophet Muhammad's use of left and right hands.md)
@@ -60,13 +60,13 @@
 - [Remembering Allah in congregation is superior - when one comes to Allah walking He comes running](Remembering Allah in congregation is superior - when one comes to Allah walking He comes running.md)
 - [The purest of deeds](The purest of deeds.md)
 - [Best deed to save one from Allah's punishment](Best deed to save one from Allah's punishment.md)
-- [Allah perdona todo pecado excepto que sea público](Allah perdona todo pecado excepto que sea público.md)
+- [Allah perdona todo pecado excepto que sea público](Allah perdona todo pecado excepto que sea publico.md)
 - [Whoever comes to Allah walking, He comes to him running](Whoever comes to Allah walking, He comes to him running.md)
 - [Reward of he who revives a tradition from the sunnah - Sin of he who innovates](Reward of he who revives a tradition from the sunnah - Sin of he who innovates.md)
 ## Du'aa
 - [Du'aa de Yunus (as)](Du'aa de Yunus.md)
 - [Sayyidul Istighfar](Sayyidul Istighfar.md)
-- [Líbrame de los males dentro de mi](Líbrame de los males dentro de mi.md)
+- [Líbrame de los males dentro de mi](Librame de los males dentro de mi.md)
 - [Du'aa after a meeting](Du'aa after a meeting.md)
 - [Do not invoke curses on yourself or your children](Do not invoke curses on yourself or your children.md)
 - [Du'aa is worship](Du'aa is worship.md)
@@ -101,7 +101,7 @@
 - [His mercy prevails over His wrath](His mercy prevails over His wrath.md)
 - [His mercy overcomes His anger](His mercy overcomes His anger.md)
 ## About Angels
-- [Jibreel visita el paraíso y el infierno](Jibreel visita el paraíso y el infierno.md)
+- [Jibreel visita el paraíso y el infierno](Jibreel visita el paraiso y el infierno.md)
 - [Jibreel revised the Qur'an once a year](Jibreel revised the Qur'an once a year.md)
 ## About Prophets
 - [Adam and Musa argue](Adam and Musa argue.md)

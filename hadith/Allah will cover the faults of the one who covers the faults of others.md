@@ -1,4 +1,3 @@
-#islam #hadith 
 Abu Huraira reported: The Messenger of Allah, peace and blessings be upon him, said:
 > A servant does not cover the faults of another servant in the world but that Allah will cover his faults on the Day of Resurrection.
 

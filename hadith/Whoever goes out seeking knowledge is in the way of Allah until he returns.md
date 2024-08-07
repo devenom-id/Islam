@@ -1,4 +1,3 @@
-#islam #hadith 
 Anas ibn Malik reported: The Messenger of Allah, peace and blessings be upon him, said:
 
 مَنْ خَرَجَ فِي طَلَبِ الْعِلْمِ كَانَ فِي سَبِيلِ اللَّهِ حَتَّى يَرْجِعَ

@@ -1,4 +1,3 @@
-#islam #hadith 
 Mughira b. Shu'ba reported:
 
 When I came to Najran, they (the Christians of Najran) asked me: You read "O sister of Harun" in the Qur'an, whereas Moses was born much before Jesus. When I came back to Allah's Messenger (ﷺ) I asked him about that, whereupon he said:

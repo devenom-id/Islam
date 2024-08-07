@@ -1,4 +1,3 @@
-#islam #hadith 
 Abu Nadrah reported: The Messenger of Allah, peace and blessings be upon him, said:
 > O people, your Lord is one and your father Adam is one. There is no favor of an Arab over a foreigner, nor a foreigner over an Arab, and neither white skin over black skin, nor black skin over white skin, except by righteousness. Have I not delivered the message?
 

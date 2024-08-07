@@ -1,4 +1,3 @@
-#islam #hadith 
 Juwairiyah bint Al-Harith (May Allah be pleased with her), the Mother of the Believers, reported:
 The Prophet (ﷺ) came out from my apartment in the morning as I was busy in performing the dawn prayer. He came back in the forenoon and found me sitting there. The Prophet (ﷺ) said,
 > "Are you still in the same position as I left you."

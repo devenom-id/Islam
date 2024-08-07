@@ -1,4 +1,3 @@
-#islam #hadith 
 Narrated Ibn 'Abbas: Allah's Apostle said,
 
 > 'Nations were displayed before me; one or two prophets would pass by along with a few followers. A prophet would pass by accompanied by nobody. Then a big crowd of people passed in front of me and I asked, Who are they Are they my followers?" It was said, 'No. It is Moses and his followers It was said to me, 'Look at the horizon.'' Behold! There was a multitude of people filling the horizon. Then it was said to me, 'Look there and there about the stretching sky! Behold! There was a multitude filling the horizon,' It was said to me, 'This is your nation out of whom seventy thousand shall enter Paradise without reckoning.'

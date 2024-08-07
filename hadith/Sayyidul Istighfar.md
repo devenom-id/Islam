@@ -1,4 +1,3 @@
-#islam #hadith 
 Narró Shaddad bin Aus:
 El profeta (ﷺ) dijo,
 

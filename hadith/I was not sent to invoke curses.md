@@ -1,4 +1,3 @@
-#islam #hadith 
 Abu Huraira reported: It was said, 
 > “O Messenger of Allah, pray against the idolaters!”
 

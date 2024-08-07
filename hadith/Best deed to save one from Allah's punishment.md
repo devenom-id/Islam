@@ -1,4 +1,3 @@
-#islam #hadith 
 Mu’adh ibn Jabal reported: The Messenger of Allah, peace and blessings be upon him, said:
 
 > The son of Adam never acts with a deed better to save him from the punishment of Allah than with the remembrance of Allah.

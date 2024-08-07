@@ -1,4 +1,3 @@
-#islam #hadith 
 Anas ibn Malik reported: The Messenger of Allah, peace and blessings be upon him, said:
 > The faith of a servant is not upright until his heart is upright, and his heart is not upright until his tongue is upright. A man will not enter Paradise if his neighbor is not secure from his evil.
 

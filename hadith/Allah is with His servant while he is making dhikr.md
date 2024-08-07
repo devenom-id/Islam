@@ -1,4 +1,3 @@
-#islam #hadith 
 Verily, Allah Almighty says:
 > I am with My servant while he remembers Me and for Me his two lips are moving.
 
