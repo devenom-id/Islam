@@ -11,6 +11,7 @@
 - [Intoxicantes](basis-of-religion/Intoxicantes.md)
 - Zakat
 - Tayammum
+
 ## Stories of the Prophets - Ibn Kathir
 This section contains the book "Stories of the Prophets" by Ibn Kathir separated in chapters.
 - [Prophet Adam](prophets-stories/Adam.md)
@@ -42,5 +43,6 @@ This section contains the book "Stories of the Prophets" by Ibn Kathir separated
 - Prophet Yahya (John)
 - Prophet Isa (Jesus)
 - Prophet Muhammad
+
 ## Hadith
 Take a look at our collection of authenticated ahadith separated in different categories to facilitate the search of a hadith. Each hadith mentions its source and grade of authenticity. [Click here to see the index](hadith/index.md)
